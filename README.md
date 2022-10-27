@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Jeff! Currently a Junior studying Computer Science and Economics in UC Berkeley!
+- Working on a few personal projects between classes, so feel free to reach out to collaborate
